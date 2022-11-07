@@ -34,4 +34,3 @@ https://diamondsreviewafrica.com/<br>
 https://alureconstructions.com/<br>
 https://agenciaveroicone.com.br/
 https://atitudpilates.com.br/<br>
-https://play.google.com/store/apps/details?id=io.glideapp.newsdiamond
